@@ -1,7 +1,6 @@
-<div align="center>
-  <p align="left"> <a href="https://rentry.co/wemmbify" target="blank">rentry</a> <img alt="image" width="15" height="10" src="https://pixels.crd.co/assets/images/gallery27/c9359279.gif?v=29416114"> </p>
-<p align="center"> <a href="https://wemmbify.atabook.org" target="blank">atabook</a> <img alt="image" width="15" height="10" src="https://pixels.crd.co/assets/images/gallery27/c9359279.gif?v=29416114"> </p>
-<p align="right"> <a href="https://wemmbifies.straw.page" target="blank">strawpage</a> <img alt="image" width="15" height="10" src="https://pixels.crd.co/assets/images/gallery27/c9359279.gif?v=29416114"> </p>
+<p align="center"> <a href="https://rentry.co/wemmbify" target="blank">RENTRY</a> <img alt="image" width="15" height="10" src="https://pixels.crd.co/assets/images/gallery27/c9359279.gif?v=29416114">
+<a href="https://wemmbify.atabook.org" target="blank">ATABOOK</a> <img alt="image" width="15" height="10" src="https://pixels.crd.co/assets/images/gallery27/c9359279.gif?v=29416114">
+<a href="https://wemmbifies.straw.page" target="blank">STRAWPAGE</a> <img alt="image" width="15" height="10" src="https://pixels.crd.co/assets/images/gallery27/c9359279.gif?v=29416114"> </p>
 <img alt="image" width="1000" height="500" src="https://i.pinimg.com/736x/67/d6/24/67d6242eacc5f71625c46be7e8a60a44.jpg">
 <p align="left"> dakotaㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤꕀꕀㅤㅤㅤㅤㅤ th♡y/faeㅤㅤㅤㅤㅤ➜ "we wa we wa im wemmbu"</p>
   <p align="left"> or squiddo !! ✦ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤgenderfluid ₊ lesbian, 6teen</p>
