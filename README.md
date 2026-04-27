@@ -1,4 +1,4 @@
-<p align="center"> <a href="https://rentry.co/wemmbify" target="blank">RENTRY</a> <img alt="image" width="15" height="10" src="https://pixels.crd.co/assets/images/gallery27/c9359279.gif?v=29416114">
+<p align="center"> <a href="https://rentry.co/voidjvmp" target="blank">RENTRY</a> <img alt="image" width="15" height="10" src="https://pixels.crd.co/assets/images/gallery27/c9359279.gif?v=29416114">
 <a href="https://wemmbify.atabook.org" target="blank">ATABOOK</a> <img alt="image" width="15" height="10" src="https://pixels.crd.co/assets/images/gallery27/c9359279.gif?v=29416114">
 <a href="https://wemmbifies.straw.page" target="blank">STRAWPAGE</a> <img alt="image" width="15" height="10" src="https://pixels.crd.co/assets/images/gallery27/c9359279.gif?v=29416114"> 
 <a href="https://www.tumblr.com/wemmbifies" target="blank">TUMBLR</a> <img alt="image" width="15" height="10" src="https://pixels.crd.co/assets/images/gallery27/c9359279.gif?v=29416114"> </p>
